@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @BarryBee003
 - 👀 I’m interested in buying some sauce, touching some fish and white whoring.
-- 🌱 I’m currently learning buying more sauce, touching bigger fish and getting more white whoring.
-- 💞️ I’m looking to collaborate on how to realize ultimate lying flat.
+- 🌱 I’m currently learning buying more sauce, touching bigger fish and gaining more white whoring.
+- 💞️ I’m looking to collaborate on how to realize ultimate lying flat and common prosperity.
 - 📫 How to reach me: please bizhongtian039@gmail.com
 
 <!---
